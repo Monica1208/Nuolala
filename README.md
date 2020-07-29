@@ -9,7 +9,7 @@
 
 ### 一些关于他的事情
 - [丞昊 | Naiad](https://lanalana.bitcron.com/post/34-%7C-naiad)
-- [鬼佳 | 告别锡安](http://nuolala192.lofter.com/post/1f8a3382_efdc9700)
+- [鬼佳 | 告别锡安](https://shimo.im/docs/WhB1OQu1iXUHQI6k/read)
 - [丞昊 | Mystery of Love](https://shimo.im/docs/UK1H7tsjcks21tgN/)
 
 ### 早冬 毕佳
